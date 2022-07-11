@@ -1,3 +1,0 @@
-Administrator
-WIN-JKD23MN94EF 
-12 ??????? 2565  4:41:22
